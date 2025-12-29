@@ -1,1 +1,0 @@
-# gala-el-jireh
